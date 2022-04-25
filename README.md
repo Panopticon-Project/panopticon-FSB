@@ -13,3 +13,5 @@ https://www.securityweek.com/us-indicts-evil-corp-hackers-alleged-russian-intell
 https://www.justice.gov/opa/pr/us-charges-russian-fsb-officers-and-their-criminal-conspirators-hacking-yahoo-and-millions
 
 https://www.justice.gov/opa/press-release/file/948201/download
+
+https://www.justice.gov/opa/press-release/file/1486836/download
