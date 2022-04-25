@@ -9,3 +9,7 @@ https://www.forbes.com/sites/zakdoffman/2019/07/20/russian-intelligence-has-been
 https://www.securityweek.com/fsb-contractor-hacked-secret-russian-projects-exposed
 
 https://www.securityweek.com/us-indicts-evil-corp-hackers-alleged-russian-intelligence-ties
+
+https://www.justice.gov/opa/pr/us-charges-russian-fsb-officers-and-their-criminal-conspirators-hacking-yahoo-and-millions
+
+https://www.justice.gov/opa/press-release/file/948201/download
